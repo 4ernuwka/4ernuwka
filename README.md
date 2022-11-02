@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @4ernuwka
-- 👀 I’m interested in la2 games
+- 👀 I’m interested in IT
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on IT
 - 📫 How to reach me: https://griffons.3bb.ru or opba@yandex.ru
